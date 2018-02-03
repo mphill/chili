@@ -27,4 +27,4 @@
 
 
 
-Server with noodles and red beans, add your favorite chili fixin's
+Serve with spaghetti noodles and red beans, add your favorite chili fixin's
